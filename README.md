@@ -3,7 +3,7 @@
 <br>
 <br>
 <br>
-mikijima ; any pronouns
+miki ; any pronouns
 <br>
 wtei yuri truther
 <br>
