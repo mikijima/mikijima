@@ -1,16 +1,10 @@
-### Hi there 👋
-
-<!--
-**mikijima/mikijima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+<img src="https://i.pinimg.com/564x/60/4f/67/604f67fe87a3513cf053bfa2e6611416.jpg" width="25%"">
+<br>
+<br>
+<br>
+mikijima ; any pronouns
+<br>
+wtei yuri truther
+<br>
+<br>
