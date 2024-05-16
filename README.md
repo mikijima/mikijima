@@ -5,6 +5,6 @@
 <br>
 miki ; any pronouns
 <br>
-wtei yuri truther
+yuri and yaoi lover
 <br>
 <br>
