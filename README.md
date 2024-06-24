@@ -7,4 +7,8 @@ miki ; any pronouns
 <br>
 yuri and yaoi lover
 <br>
+soad, radiohead, elliott smith, alex g fan
+<br>
+read my links 4 more
+<br>
 <br>
