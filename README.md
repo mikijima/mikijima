@@ -9,6 +9,6 @@ yuri and yaoi lover
 <br>
 soad, radiohead, elliott smith, alex g fan
 <br>
-read my links 4 more
+sign my atabook, read my links 4 more
 <br>
 <br>
