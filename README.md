@@ -1,11 +1,9 @@
 <div align="center">
-<img src="https://i.pinimg.com/564x/60/4f/67/604f67fe87a3513cf053bfa2e6611416.jpg" width="25%"">
+<img src="https://i.pinimg.com/564x/24/f6/20/24f6208776981ba78b08b15eb135c5f7.jpg" width="25%"">
 <br>
 <br>
 <br>
 miki ; any pronouns
-<br>
-yuri and yaoi lover
 <br>
 soad, radiohead, elliott smith, alex g fan
 <br>
