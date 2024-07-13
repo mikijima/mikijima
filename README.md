@@ -5,7 +5,6 @@
 <br>
 miki ; any pronouns
 <br>
-soad, radiohead, elliott smith, alex g fan
 <br>
 sign my atabook, read my links 4 more
 <br>
