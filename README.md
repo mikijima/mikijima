@@ -1,10 +1,14 @@
 <div align="center">
-<img src="https://i.pinimg.com/564x/24/f6/20/24f6208776981ba78b08b15eb135c5f7.jpg" width="25%"">
+
 <br>
-<br>
+
+
+
+<https://github.com/user-attachments/assets/6ce1297c-0360-43fd-81b9-3c0e596f0081.mp4>
+
+
 <br>
 miki ; any pronouns
-<br>
 <br>
 sign my atabook, read my links 4 more
 <br>
