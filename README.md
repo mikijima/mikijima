@@ -4,6 +4,6 @@
 <br>
 miki ; any pronouns
 <br>
-sign my atabook, read my links 4 more
+read my links 4 more
 <br>
 <br>
